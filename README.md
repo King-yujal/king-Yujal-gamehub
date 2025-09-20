@@ -1,2 +1,2 @@
 # king-Yujal-gamehub
-game hub, a place where you find cool games on your school computer
+game hub, a place where you find cool games on your school computer unblocked games
